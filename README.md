@@ -1,2 +1,2 @@
-👋 Hi, I’m @maarjaam
-📫 maarja.kask@tptlive.ee
+- 👋 Hi, I’m @maarjaam
+- 📫 maarja.kask@tptlive.ee
